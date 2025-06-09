@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SilentStormy
+- 👋 Hi, I’m Safa
 - 👀 I’m interested in full-stack development and UI/UX design
 - 🌱 I’m currently learning C#, .NET Razor Pages and SQL
 - 💞️ I’m looking to collaborate on open source and student projects
