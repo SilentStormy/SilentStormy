@@ -2,6 +2,7 @@
 
 I chose the name 🌪SilentStormy🌪 because it reflects who I am. I observe more than I speak and remain composed even in difficult situations. 
 Beneath that calm exterior, there is strong energy, ambition, and resilience - like a silent storm gathering strength before it moves.
+
 🔥🔥🔥LFG!!!
 <!--
 **SilentStormy/SilentStormy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
