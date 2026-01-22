@@ -1,4 +1,4 @@
-## Hi there 👋, It's Silent Stormy🌪
+## 👋 Hi there, It's Silent Stormy🌪
 Don't be afraid. This is my problem.
 
 I chose the name 🌪SilentStormy🌪 because it reflects who I am. I observe more than I speak and remain composed even in difficult situations. 
